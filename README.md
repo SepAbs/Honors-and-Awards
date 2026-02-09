@@ -1,1 +1,1 @@
-# Honors-Awards
+# Honors & Awards
